@@ -18,3 +18,7 @@ Aminnnn......
 <br />
 <br />
 (Terima Kasih Pada Semua Anggota 4MH yang Telah Bekerjasama Dengan Baik Dalam Menyelesaikan Software Inku ini)
+<br />
+Produk lain dari 4MH Group :
+<br />
+http://4mhsiagribisnis.site90.com/
